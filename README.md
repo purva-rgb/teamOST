@@ -1,2 +1,2 @@
 # teamOST
- Bhoomi :( Nicole:) Purva <3 Sejal(2007 - 2024 RIP)
+Nicole:) Purva ^_^ Bhoomi <3<3**Sejal(2007 - 2024 RIP)
